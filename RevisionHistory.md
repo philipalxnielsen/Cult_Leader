@@ -14,7 +14,7 @@ Venerable Sanctity (Sliver Queen, new player):
 - Didn't get their engine running.
 - didn't use their role as they had troubles developing their board
 
-Archaic Affliction (Wilhelm Rotcleaver, new player):
+Archaic Affliction (Wilhelt, the Rotcleaver, new player):
 - didn't get their engine running.
 
 Unceasing Butchery (not played):
